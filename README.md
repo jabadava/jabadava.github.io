@@ -1,1 +1,1 @@
-# jabadava.github.io
+# jabadava.com
